@@ -1,2 +1,1 @@
-[doc lab 04.pdf](https://github.com/user-attachments/files/31823463/doc.lab.04.pdf)
-
+[doc laab 04.pdf.docx](https://github.com/user-attachments/files/31823716/doc.laab.04.pdf.docx)
